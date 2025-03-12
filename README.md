@@ -41,7 +41,7 @@ If you have new codes or find an expired one, check out the [CONTRIBUTING.md](CO
 ---
 
 ## License
-This project is licensed under the [MIT License](LICENSE).
+This project is licensed under the [MIT License](LICENSE.md).
 
 ---
 
