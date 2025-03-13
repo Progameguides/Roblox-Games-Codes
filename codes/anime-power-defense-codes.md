@@ -126,5 +126,4 @@ If you found this post helpful, share it with your fellow *Anime Power Defense* 
 **Happy gaming and good luck defending your base!**  
 
 ---
-
-![Anime Power Defense](https://pro-game-guides.com/wp-content/uploads/2025/03/0-8-750x420.png) ](https://pro-game-guides.com/anime-power-defense-codes)  
+📌 **[More Roblox Codes & Guides](https://pro-game-guides.com/collect-all-pets-codes/anime-power-defense-codes)**
